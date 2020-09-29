@@ -14,6 +14,6 @@
  
  Don't think too much. This is one the best project for college students.....
 
-#### Mail me, I will send you everything very soon 
+#### Mail me at (Vatshayan007@gmail.com), I will send you everything very soon.
 
 Let's Learn, Work and Grow together.
