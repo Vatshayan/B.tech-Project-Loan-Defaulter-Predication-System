@@ -14,8 +14,7 @@
  
  Don't think too much. This is one the best project for college students.....
 
-#################################################################################################################################################################################3
-
+******************************************************************************************************************************************************************
 It's fully Python programming Project.
 
 ## Contact me Now (Vatshayan007@gmail.com) for this Project Code, PPT, Report, Synopsis and Research paper of this Project.
